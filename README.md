@@ -1,2 +1,0 @@
-# TheReaperz.github.io
-portofolio
